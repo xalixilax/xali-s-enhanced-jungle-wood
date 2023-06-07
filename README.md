@@ -1,0 +1,3 @@
+# xali's Enhnaced Jungle Wood
+
+Introducing Xali's Enhanced Jungle Wood, a captivating texture pack that breathes new life into the world of Minecraft. Experience the lush beauty of the jungle like never before as the textures of jungle wood are completely transformed. Immerse yourself in a vibrant realm where each block radiates with the essence of the wilderness. Let your creativity flourish in a tropical paradise with Xali's Enhanced Jungle Wood texture pack.
